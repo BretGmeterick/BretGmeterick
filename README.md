@@ -1,0 +1,5 @@
+- Hi, I’m @BretGmeterick
+- I’m interested in coding
+- I’m currently learning Python
+- I’m looking to collaborate on anything that can help me learn I guess
+- How to reach me: elbtrg123@gmail.com
